@@ -1,7 +1,7 @@
-/* # Exclusively from VIRUS FUCKER Project 
+/* # Exclusively from xmanux Project 
 # Do not use this fore any commercial thing
 # Do not edit (Respect to the Devaoloper) 
-# All rights reserved VIRUS FUCKER https://Wa.me/947154224
+# All rights reserved xmanux 
 # Credit : usufusta-whatsappAsena
 */
 
